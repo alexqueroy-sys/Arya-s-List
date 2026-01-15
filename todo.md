@@ -1,0 +1,1 @@
+Personnage à éliminer
